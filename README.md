@@ -1,1 +1,1 @@
-More info at http://blog.classicalcode.com/2009/03/endlessly-rising-shepard-tone/
+More info at http://jordaneldredge.com/blog/endlessly-rising-shepard-tone
